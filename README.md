@@ -12,4 +12,4 @@ Intrivia seruu bangett rapi tugas nyaa banyakk hehehe
 Temen-temen cluster 4 seru pokok nyaa
 
 ## Harapan Kuliah 
-Semoga dapet ilmu banyak terus lanjut kerja dengan gaji tinggi
+Semoga dapet ilmu banyak terus lanjut kerja dengan gaji tinggis
