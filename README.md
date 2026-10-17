@@ -10,3 +10,6 @@ Intrivia seruu bangett rapi tugas nyaa banyakk hehehe
 
 ## Kesan Pesan Cluster 4 Sejauh Ini 
 Temen-temen cluster 4 seru pokok nyaa
+
+## Harapan Kuliah 
+Semoga dapet ilmu banyak terus lanjut kerja dengan gaji tinggi
